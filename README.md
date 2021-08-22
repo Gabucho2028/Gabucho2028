@@ -1,0 +1,4 @@
+- Hello, I have come to this platform to learn
+- I'm interest in anything related to software and pentesting 
+- I expect the best of this community and greetings to everyone
+- I would want to gain experiencie so I would like to work in any project possible
